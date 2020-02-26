@@ -2,8 +2,12 @@
 
 Visit My Page: [Click Here](www.jordyyusim.blogspot.com)
 <hr>
-Follow My Social Media:
 [Linkedin](https://www.linkedin.com/in/jordyyusim/)
+<hr>
 [Instagram](www.instagram.com/jordyyusim)
+<hr>
 [Twitter](www.twitter.com/jordyyusim)
+
+
+
 
