@@ -2,11 +2,11 @@
 
 Visit My Page: [Click Here](www.jordyyusim.blogspot.com)
 <hr>
-[Linkedin](https://www.linkedin.com/in/jordyyusim/)
+Visit My Linkedin: [Linkedin](https://www.linkedin.com/in/jordyyusim/)
 <hr>
-[Instagram](www.instagram.com/jordyyusim)
+Follow My Instagram: [Instagram](www.instagram.com/jordyyusim)
 <hr>
-[Twitter](www.twitter.com/jordyyusim)
+Follow My Twitter: [Twitter](www.twitter.com/jordyyusim)
 
 
 
